@@ -1,4 +1,4 @@
-##_The Amazon Rainforest_ 
+_*The Amazon Rainforest*_
 
 Stuck in the Amazon rainforest in utter solitude with razor-sharp branches sticking out and leaves of all types surrounding me, I quivered in fear. My bosom buddies and I had come
 to the rainforest together for an escape from our hectic lifestyle in the busy city to catch some fresh, crisp air. We had been tromping around the forest, taking professional
