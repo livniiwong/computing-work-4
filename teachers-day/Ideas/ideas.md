@@ -10,3 +10,5 @@ Are they cursing at me? What did I do wrong?
 "Ok class, we are going to learn about linear graphs today, please take out your 1A Math Textbook." 
 Upon hearing that, a few students took out their textbooks, only a few. It's always that few diligent ones.
 I thought to myself, "What have I ever done to receive this treatment? I try my best every day, but why is it not appreciated? Why am I not respected?"
+
+"Life in class is so interesting."
