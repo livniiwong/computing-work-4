@@ -24,7 +24,7 @@ struck me.
 Its cold and scaly body slid smoothly down my legs, and started to entwine me tightly. Pinning my arms against my sides, it cleverly ensured that I had absolutely no way to escape.
 Then, it opened its wide mouth, frightening me. Its maw shone with globules of spittle, and I only had a few milliseconds to make a difference, whether it is to let the snake
 devour me or murder it. Laboriously, I began to inch my hand to my moleskin waist pouch. Unfortunately, the more I moved, the tighter the tension between the snake and my leg. 
-Desperately, I rummaged through my survival bag quickly and managed to reach for a knife. Immediately, I jutted it into the snake’s body. 
+Desperately, I rummaged through my survival bag hastily and managed to grab a knife. Immediately, I jutted it into the snake’s body. 
 
 Momentarily in shock, the snake slackened its grip on my leg. Weaseling my way out of the snake’s loosened grip, my fear gave wings to my feet, whipping them to run faster.
 My heart was palpitating wildly but I ignored it. I had finally figured out my escape route. 
